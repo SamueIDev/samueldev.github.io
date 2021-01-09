@@ -1,2 +1,0 @@
-# samueldev.github.io
-CV
